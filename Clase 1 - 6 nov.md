@@ -52,6 +52,6 @@ Marianela
 Yamila
 > https://github.com/YamLapin
 
-Vicki
+Vicki ♥
 > https://github.com/mermadly
 
